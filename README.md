@@ -6,7 +6,7 @@
 
 - 🎂 19 years old
 - 📚 Languages: I speak Portuguease and almost English
-- 💀 work:
+- 💀 work: At a hospital products company
 - 📫 How to reach me: discord (magrelim00k7) or e-mail (Jeanpereira00k7@gmail.com)
 - 😄 Pronouns: any
 - 🎲 Fun fact: potato
